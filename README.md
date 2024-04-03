@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TomGbs22
-- 👀 I’m interested in fulltime job
+- 👀 I’m interested in fulltime employment
 - 🌱 I’m currently learning digital painting and design
 - 💞️ I’m looking to collaborate on videos games industry as concept artist
 - 📫 How to reach me : tgarbiso@gmail.com
